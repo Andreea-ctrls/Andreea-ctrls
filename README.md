@@ -1,4 +1,4 @@
-⚡ Fun fact: Don't forget to save! =D
+⚡ Blondes can code ⚡
 
 <!---
 Andreea-ctrls/Andreea-ctrls is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
